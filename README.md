@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Classylilbit
+- 👀 I’m interested in learn a few things
+- 🌱 I’m currently learning about hackers
+- 💞️ I’m looking to collaborate on how to keep my data safe
+- ⚡ Fun fact: I didn't type any of this up
+- on here it was done and on my screen when I woke up!
